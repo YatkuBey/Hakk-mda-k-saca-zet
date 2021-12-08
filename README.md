@@ -1,2 +1,5 @@
 - 👋 Hi, I’m @YatkuBey to software developer
-- 
+-
+- software developer destan roleplay developer
+-
+- Turkey / Bursa
